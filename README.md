@@ -1,0 +1,1 @@
+# KLH-CSIT-2026-27-2420090037-AI-Inventory-managment
